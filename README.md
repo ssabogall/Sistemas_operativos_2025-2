@@ -1,1 +1,0 @@
-# Sistemas_operativos_2025-2
